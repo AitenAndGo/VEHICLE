@@ -6,5 +6,4 @@
 
 https://github.com/AitenAndGo/VEHICLE/assets/87769038/28d964f2-fa30-4e7c-8610-0198bf1b3f04
 
-
-
+![ekran_4](https://github.com/AitenAndGo/VEHICLE/assets/87769038/c94b3c60-e028-4fea-b80c-c4a39b0f800e)
